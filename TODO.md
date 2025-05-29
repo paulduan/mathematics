@@ -18,7 +18,7 @@
 
 6.1/x的积分-等比数列求和-重要切线不等式
 7.欧拉公式
-8.
+8.伯努利数 https://www.bilibili.com/video/BV1GZRXYjEGK/?spm_id_from=333.337.search-card.all.click&vd_source=0cc160145e6e47c44a76dc223dd51937
 
   
 
