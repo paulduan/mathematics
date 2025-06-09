@@ -21,7 +21,7 @@
 8.伯努利数 https://www.bilibili.com/video/BV1GZRXYjEGK/?spm_id_from=333.337.search-card.all.click&vd_source=0cc160145e6e47c44a76dc223dd51937
 圆锥曲线
   
-
+【讲故事的藜菽的个人空间-哔哩哔哩】 https://b23.tv/zgfY0zK
   
 
 一次函数
